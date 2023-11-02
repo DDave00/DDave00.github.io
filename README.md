@@ -1,2 +1,9 @@
 # Dávid ajándéklistája
-## 1. (2szem.)Hyperx cloud II fejhallgató:https://www.konzolvilag.hu/pc/hyperx-cloud-ii-pro-gaming-headset-red-4p5m0aa
+#### Tájékoztató: erre költözött a listám mint mindig 
+érdemes frissíteni ajándék vásárlással kaptolatban keressék anyát!! Weboldal üzemeltetője: Karsai Dávid
+
+
+
+
+
+## 1.
