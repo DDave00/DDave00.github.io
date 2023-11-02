@@ -7,4 +7,4 @@
 
 
 
-## 1.
+# 1. (2 szem) Hyperx cloud 2:https://www.konzolvilag.hu/pc/hyperx-cloud-ii-pro-gaming-headset-red-4p5m0aa
