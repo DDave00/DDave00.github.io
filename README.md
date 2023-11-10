@@ -11,3 +11,6 @@
 
 
 # 2. Ne nyúlj a hondámhoz:https://matricakell.hu/dont-touch-my-honda-matrica-696
+
+
+ # 3. Casio G-shock karóra : https://www.timestore.hu/Marka/Casio/G-Shock/Casio-G-Shock-Original-72529
